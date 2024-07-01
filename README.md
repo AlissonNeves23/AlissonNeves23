@@ -1,0 +1,2 @@
+- 👋 Oi, Me chamo Alisson Jesus
+- 💞️ Atualmente estou cursando desenvolvimendo de software na Cubus Academy e aprendendo outras linguagens por fora.
